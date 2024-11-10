@@ -1,1 +1,3 @@
-# Tugas5-PBW2-23.240.0054
+Nama : Eka Septi Prasetyana
+NIM : 23.240.0054
+Kelas : 3P41
